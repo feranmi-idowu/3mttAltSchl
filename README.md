@@ -1,1 +1,1 @@
-# 3mttAltSchool
+Read.me
